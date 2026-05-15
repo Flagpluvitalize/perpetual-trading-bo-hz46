@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced Automation Script for perpetual trading bot | order-book-analysis + liquidity-provision, the #1 perpetual trading bot. Includes
 
 
 
